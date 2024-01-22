@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @lycuss
+- 👋 Hi, I’m @lycuss im 18
 - 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning how to program from scratch.
 - ⚡ Fun fact: i love playing games.
