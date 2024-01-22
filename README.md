@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lycuss
-- 👀 I’m interested in earning new things.
+- 👀 I’m interested in learning new things.
 - 🌱 I’m currently learning how to program from scratch.
 - ⚡ Fun fact: o love playing games.
 - ♾️ im in the process of making a discord server which i will post a link
